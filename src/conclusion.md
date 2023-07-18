@@ -1,8 +1,5 @@
 # Conclusion
 
-Conclusion
-==========
-
 The Ongoing Journey of Lifelong Learning and Mastery
 ----------------------------------------------------
 
