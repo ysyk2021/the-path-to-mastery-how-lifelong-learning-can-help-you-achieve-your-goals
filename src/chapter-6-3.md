@@ -1,4 +1,4 @@
-Chapter 7: Balancing Theory and Practice
+Balancing Theory and Practice
 ========================================
 
 In this chapter, we will explore the importance of balancing theory and practice on the path to mastery. While theory provides us with the knowledge and frameworks necessary to understand a subject, it is through practice that we truly internalize and apply what we have learned.
