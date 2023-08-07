@@ -1,4 +1,4 @@
-Chapter 5: Understanding the Difference Between a Fixed and Growth Mindset
+Understanding the Difference Between a Fixed and Growth Mindset
 ==========================================================================
 
 In this chapter, we will explore the concept of mindset and its impact on our ability to achieve mastery in any field. Specifically, we will delve into understanding the difference between a fixed mindset and a growth mindset.

@@ -1,4 +1,4 @@
-Chapter: Defining Learning Objectives
+Defining Learning Objectives
 =====================================
 
 Introduction

@@ -1,4 +1,4 @@
-Chapter: What is Lifelong Learning?
+What is Lifelong Learning?
 ===================================
 
 Introduction

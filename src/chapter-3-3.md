@@ -1,4 +1,4 @@
-Chapter 5: Overcoming Limiting Beliefs and Self-Doubt
+Overcoming Limiting Beliefs and Self-Doubt
 =====================================================
 
 Introduction

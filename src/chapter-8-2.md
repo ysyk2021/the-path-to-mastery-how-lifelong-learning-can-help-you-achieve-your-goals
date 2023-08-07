@@ -1,4 +1,4 @@
-Chapter: Building a Culture of Lifelong Learning in Your Personal and Professional Life
+Building a Culture of Lifelong Learning in Your Personal and Professional Life
 =======================================================================================
 
 Introduction

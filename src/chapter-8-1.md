@@ -1,4 +1,4 @@
-Chapter 5: Maintaining Motivation and Momentum
+Maintaining Motivation and Momentum
 ==============================================
 
 Introduction

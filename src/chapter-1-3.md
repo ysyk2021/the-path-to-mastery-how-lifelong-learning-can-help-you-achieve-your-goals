@@ -1,4 +1,4 @@
-Chapter 3: The Role of the Path to Mastery
+The Role of the Path to Mastery
 ==========================================
 
 Introduction
