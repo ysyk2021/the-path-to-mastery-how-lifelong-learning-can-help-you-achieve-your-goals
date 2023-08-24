@@ -1,5 +1,3 @@
-Building a Personal Learning Network
-================================================
 
 In today's rapidly changing world, building a strong personal learning network (PLN) is crucial for achieving mastery and continual growth. A PLN consists of individuals, resources, and communities that support and inspire our learning journey. By cultivating a diverse and robust PLN, we gain access to valuable knowledge, expertise, and opportunities for collaboration. In this chapter, we will explore the importance of building a PLN and provide practical steps to create and nurture your own network.
 

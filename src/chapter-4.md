@@ -1,5 +1,3 @@
-Chapter 3: Setting Learning Goals
-=================================
 
 Setting clear learning goals is critical for achieving mastery in any field. In this chapter, we will explore strategies for identifying areas for development, defining learning objectives, and creating a learning plan.
 

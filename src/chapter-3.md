@@ -1,5 +1,3 @@
-Chapter 2: Developing a Growth Mindset
-======================================
 
 Developing a growth mindset is critical for achieving mastery in any field. In this chapter, we will explore the difference between a fixed and growth mindset, techniques for developing a growth mindset, and strategies for overcoming limiting beliefs and self-doubt.
 

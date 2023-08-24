@@ -1,5 +1,3 @@
-Chapter 6: Measuring Learning Progress
-======================================
 
 Measuring learning progress is an essential component of lifelong learning. By establishing metrics for success, evaluating the impact of learning, and adjusting the learning plan as needed, individuals can stay on track towards achieving their goals. In this chapter, we will explore how to measure learning progress.
 

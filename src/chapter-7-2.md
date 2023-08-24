@@ -1,5 +1,3 @@
-Evaluating the Impact of Learning
-=========================================================================
 
 Evaluating the impact of learning is an essential component of lifelong learning. By measuring the impact of learning, individuals can understand the effectiveness of their learning strategies and make adjustments to achieve their goals more efficiently. In this chapter, we will explore how to evaluate the impact of learning.
 

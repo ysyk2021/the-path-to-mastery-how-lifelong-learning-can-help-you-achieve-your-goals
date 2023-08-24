@@ -1,5 +1,3 @@
-Identifying and Evaluating Learning Resources
-========================================================
 
 In this chapter, we will explore the crucial skill of identifying and evaluating learning resources on the path to mastery. With the abundance of information available today, it is essential to discern reliable and effective resources that will aid us in achieving our learning goals.
 

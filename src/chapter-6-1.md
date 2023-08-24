@@ -1,5 +1,3 @@
-Techniques for Active Learning
-=========================================
 
 In this chapter, we will explore various techniques for active learning that can enhance our ability to acquire knowledge, deepen understanding, and achieve mastery. By actively engaging with the learning process, we can optimize our learning outcomes and make significant progress towards achieving our goals.
 

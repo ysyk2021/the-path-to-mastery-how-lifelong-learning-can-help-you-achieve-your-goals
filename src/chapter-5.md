@@ -1,5 +1,3 @@
-Chapter 4: Finding Learning Resources
-=====================================
 
 Finding the right learning resources is essential for achieving mastery in any field. In this chapter, we will explore strategies for finding and evaluating learning resources, leveraging technology for learning, and building a personal learning network.
 

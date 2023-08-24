@@ -1,7 +1,3 @@
-Overcoming Limiting Beliefs and Self-Doubt
-=====================================================
-
-
 
 In our journey towards mastery and achieving our goals, one of the biggest obstacles we often face is the presence of limiting beliefs and self-doubt. These negative thought patterns can hinder our progress, prevent us from taking necessary risks, and limit our potential for growth. However, by understanding and addressing these mental barriers, we can empower ourselves to overcome them and unlock our true capabilities.
 

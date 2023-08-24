@@ -1,6 +1,3 @@
-Maintaining Motivation and Momentum
-==============================================
-
 
 Understanding Motivation
 ------------------------

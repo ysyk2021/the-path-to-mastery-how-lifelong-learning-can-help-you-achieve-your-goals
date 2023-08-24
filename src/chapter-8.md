@@ -1,5 +1,3 @@
-Chapter 7: Sustaining Lifelong Learning
-=======================================
 
 Lifelong learning is a continuous process that requires sustained effort and dedication. In this chapter, we will explore strategies for sustaining lifelong learning, including maintaining motivation and momentum, building a culture of lifelong learning in your personal and professional life, and implementing strategies for continuous growth.
 

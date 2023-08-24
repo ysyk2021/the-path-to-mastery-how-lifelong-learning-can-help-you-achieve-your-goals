@@ -1,5 +1,3 @@
-Chapter 5: Active Learning Strategies
-=====================================
 
 Active learning is a powerful approach to lifelong learning that involves engaging with the material, seeking out new experiences and challenges, and utilizing feedback and reflection. In this chapter, we will explore techniques for active learning and how to incorporate them into your learning process.
 
